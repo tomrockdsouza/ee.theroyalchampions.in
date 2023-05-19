@@ -1,1 +1,1 @@
-# ee.theroyalchampion.in By Tomrock D'souza
+# ee.theroyalchampion.in
